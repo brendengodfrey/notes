@@ -1,0 +1,2 @@
+# notes
+in class activity
